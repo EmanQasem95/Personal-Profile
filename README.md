@@ -1,6 +1,6 @@
 # Personal-Profile
 
-## Visit my profile :smile:
+## Visit my profile :wink:
 
 https://emanqasem95.github.io/Personal-Profile/
 
